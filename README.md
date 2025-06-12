@@ -1,1 +1,0 @@
-# juleshotc.github.io
